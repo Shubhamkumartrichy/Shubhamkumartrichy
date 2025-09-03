@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 Competitive Programming | Problem-Solving | Open Source | Algorithm Enthusiast 🏆
+🚀 Competitive Programming | Problem-Solving | Open Source 🏆
 
 
 ## 🌐 Socials:
